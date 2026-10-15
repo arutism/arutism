@@ -1,5 +1,5 @@
 <p align="center"><img width="500" height="243" alt="3d952c3645ffd511a490beb454add98f" src="https://github.com/user-attachments/assets/18e6b3f5-0368-4385-866c-e73327cbf2e0" /></p>
-<p align="center"> <em>china</em> , poland , or oliver</p>
+<p align="center"> <em>china</em> , dexter , or poland</p>
 
 - - -
 
